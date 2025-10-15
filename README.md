@@ -1,2 +1,3 @@
 # apna-bacha
-Author-kartik papa
+pranjal pandey/n
+son of kartik dubey ji
